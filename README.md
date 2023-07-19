@@ -4,4 +4,4 @@ Até o momento estudei diversas materiás envolvidos com a área, tais como: Por
 
 Sobre skils técnicas as citadas acima são as prevalecidas, sobre a máteria aprendida teoricamente tenho todas acimas entre outras (Redes e comunicações e Tecnologia Informação e comunicação).
 
-Teho 17 anos e muita vontade de crescer e ser um um pilar forte e imporatnte para o mundo ou mesmo para o meu país.
+Tenho 17 anos e muita vontade de crescer e ser um um pilar forte e imporatnte para o mundo ou mesmo para o meu país.
